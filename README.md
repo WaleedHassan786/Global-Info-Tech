@@ -1,0 +1,2 @@
+# Global-Info-Tech
+Global InfoTech is a BPO and IT Solutions Company situated in the capital city of Pakistan (Islamabad). Our group is a profoundly prepared, meticulous in all Virtual collaborator obligations, for example, Research, Automated Data Mining, Databases (Ms. Access), Data Conversion, PDF transformation, Email taking care of, Help Desk, Database Building.GIT is a first-rate multi-reason programming house centered to set new patterns and focuses in the IT world.
